@@ -12,7 +12,7 @@ Jimi is an information security professional and researcher. He finds mediocre b
 
 Contact
 -------
-[LinkedIn](https://www.linkedin.com/in/jimi-sebree-76027347/)
+[LinkedIn](https://www.linkedin.com/in/jimi-sebree-76027347/) / 
 [Twitter](https://x.com/DinoBytes)
 
 
